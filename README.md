@@ -3,6 +3,11 @@
 正所谓前人种树，后人乘凉
 
 感谢恩公们！
+
 https://github.com/Harrisonls2004/BUPT-SCSS-2023
 
 https://github.com/Echokovo/BUPT-SCSS-Docs
+
+https://shuita2333.github.io/
+
+https://byrdocs.org/   (不用再去地超买题了)
